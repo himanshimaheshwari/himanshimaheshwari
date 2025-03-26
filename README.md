@@ -3,7 +3,7 @@
 *🚀 Data Scientist | 🌐 Software Engineer | 📊 AI Enthusiast*  
 
 📍 Greater Noida, Uttar Pradesh, India  
-📧 maheshwarihimanshi18@example.com  
+📧 maheshwarihimanshi18@gmail.com  
 📞 +91-9302165123  
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-blue)](https://www.linkedin.com/in/himanshi-maheshwari-1690a625b/)  
